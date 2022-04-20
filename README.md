@@ -1,1 +1,0 @@
-# Hari-Raya-Puasa-Wordle
